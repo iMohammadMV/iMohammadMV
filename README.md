@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎨 UI/UX Designer  | Minimal Design Systems Fan 🤏<br>💻 Graphic Designer <br>📱  | Interested in Technology <br> 💫 Creative in Every Pixels, Let's Collaborate!
+🔭 I’m currently working on Some unique Projects!<br>👯 I’m looking to collaborate on every creative Ideas!<br>🌱 I’m currently learning Pro UI/UX Courses!<br>💬 Ask me about Everything in your mind!<br>⚡ Fun fact: Ever heard of the "potato test"?<br> If a designer can explain their design to a potato, they've nailed it. 🥔✅
 
 
 ## 🌐 Socials:
